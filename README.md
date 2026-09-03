@@ -8,6 +8,7 @@ All of my projects use free data, some involve API keys but they are keys for fr
 Feel free to contact me to ask questions about any projects, provide opinions about further research, or comment in general!
 
 Contact me:
+  
   Email: at24775n@pace.edu (School) alexander.tuosto@gmail.com (Personal)
   
   LinkedIn: [Here](www.linkedin.com/in/alexandertuosto)
