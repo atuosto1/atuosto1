@@ -11,4 +11,4 @@ Contact me:
   
   Email: at24775n@pace.edu (School) alexander.tuosto@gmail.com (Personal)
   
-  LinkedIn: [Here](www.linkedin.com/in/alexandertuosto)
+  LinkedIn: [Here](www.linkedin.com/in/alexandertuosto) or (www.linkedin.com/in/alexandertuosto)
