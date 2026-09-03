@@ -9,4 +9,5 @@ Feel free to contact me to ask questions about any projects, provide opinions ab
 
 Contact me:
   Email: at24775n@pace.edu (School) alexander.tuosto@gmail.com (Personal)
+  
   LinkedIn: [Here](www.linkedin.com/in/alexandertuosto)
